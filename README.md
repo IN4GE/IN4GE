@@ -1,7 +1,4 @@
-🔥🔥🔥🔥🔥🔥🔥
-🔥巛🖐ミ🖐ミ🔥
-🔥🖐(⚫◇＾)🔥
-🔥🔥🔥🔥🔥🔥🔥
+
 
 <!---
 IN4GE/IN4GE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
